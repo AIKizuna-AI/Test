@@ -1,4 +1,4 @@
 嗨多摩
 
 
-这里 kizuna ai desu
+这里是 kizuna ai desu
